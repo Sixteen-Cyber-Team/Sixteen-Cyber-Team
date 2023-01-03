@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### Ganteng Sih Tapi Gk Bisa Coding:(
+#### Orang Hebat Adalah Orang Yang Memiliki Kemampuan Menyembunyikan Kesusahan Sehingga Orang Lain Mengira Bahwa Ia Selalu Senang.
 <!--
 **Sixteen-Cyber-Team/Sixteen-Cyber-Team** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
